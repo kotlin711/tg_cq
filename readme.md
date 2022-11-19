@@ -5,7 +5,7 @@
 
 
 
-
+150 usdt 永久使用
 购买此软件  [请点击](https://t.me/shina_jin1)非诚勿扰
 
 
